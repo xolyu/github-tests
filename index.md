@@ -10,3 +10,5 @@ Seit dem Jahr 2003 spielt Harmon in der Fernsehserie Navy CIS, in der er seit de
 * Tätigkeit: US-amerikanischer Schauspieler, Regisseur, Fernsehproduzent
 * Studium: University of California (Abschluss: 1974)
 * Sexiest Man Alive: 1986, Zeitschrift People
+
+> Wir sind als Team erfolgreich oder wir verlieren als Team. So einfach ist das. Wir haben Erfolg, weil jeder mitwirkt.
