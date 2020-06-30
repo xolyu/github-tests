@@ -12,3 +12,5 @@ Seit dem Jahr 2003 spielt Harmon in der Fernsehserie Navy CIS, in der er seit de
 * Sexiest Man Alive: 1986, Zeitschrift People
 
 > Wir sind als Team erfolgreich oder wir verlieren als Team. So einfach ist das. Wir haben Erfolg, weil jeder mitwirkt.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/1/1c/MarkHarmonHWOFOct2012.jpg" />
